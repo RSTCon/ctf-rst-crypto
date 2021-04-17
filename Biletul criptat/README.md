@@ -1,0 +1,5 @@
+Totul a inceput cand eram mic, atunci cand tatal meu mi-a oferit un bilet cu un text criptat. Acesta mi-a spus sa il pastrez in siguranta si sa-l decriptez atunci cand o sa implinesc 13 ani. Timpul a trecut iar eu am uitat de bilet. Acum, la varsta de 32 de ani, dupa ce tata a murit din cauza unei paralizii cerebrale m-am decis sa ma mut in casa parinteasca. Carand diferite obiecte din podul casei am gasit biletul de mult uitat intr-un sertar dintr-un birou pe care obisnuiam sa-mi fac temele cand eram elev. Ti-am lasat mai jos textul, crezi ca poti sa ma ajuti?
+
+++++++++++[>+>+++>+++++++>++++++++++<<<<-]>++++++++++.>>----.++++++++.-------.>---------------.--------.+++++.<----------------..>-----------.+++.<.>++++++++++++++.<++++++++++++++++.>---------.---.++++++++++++.<++++++++++.>++.--.<------.++++++.<++++++++++++++++++++++.>-----------.>-------.<+++++.+++.<.>---.>----.<<++.>>-.+++.--.+++++++++++++.-.<+.+++.++.<---.>>.<++.---------.>--------.++++++.<<+.--.>--.>--.<+++.>----.<<++.>>+++++++.<.+++++++.----------.>--------.--.<--.>+++++++++++.<++++++.-----.<++.>+.>-.<++++++++++.>--.<<.>+++.>-.<<+++++++...
+
+Autor: YKelyan
